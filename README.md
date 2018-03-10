@@ -1,2 +1,2 @@
 # CoderSchool Blockchain Prework!
-![B](http://gph.is/2p4vIPk)
+![Screenshot](https://media.giphy.com/media/9Jvesm72x16CBRuamu/giphy.gif)
